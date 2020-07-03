@@ -1,4 +1,4 @@
-# BUSINESS QUESTION
+# BUSINESS QUESTIONS
 
 Please choose only ONE or TWO aspects of the business questions to analyze, as you have limitations on the number of slides and presentation time!
 
